@@ -1,7 +1,7 @@
 # Overview
 Hello there! My name is Anne.
 
-*MGS2 Releases October 24!*
+*Metal Gear Solid: **The Master Collection** Releases October 24!*
 
 
 
