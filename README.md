@@ -15,4 +15,10 @@ Steam: [goldrush71](https://steamcommunity.com/id/goldrush71)
 
 # Games I play
 ## Formatting:
-
+<p>
+🎮: playing currently<br>
+🐈‍⬛: not actively playing<br>
+🐕: on the shelf<br>
+🏁: Completed<br>
+🏳️‍⚧️: Waiting for sequel/dlc
+</p>
