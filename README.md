@@ -1,6 +1,6 @@
 # Overview
 <p>Hello there! My name is Anne.<br>
-***Metal Gear Solid: The Master Collection** releases October 24!*</p>
+***Metal Gear Solid: The Master Collection** releases October 24!* </p>
 
 
 # My socials
