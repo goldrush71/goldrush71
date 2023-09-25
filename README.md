@@ -29,11 +29,11 @@ Steam: [goldrush71](https://steamcommunity.com/id/goldrush71)
 
 DELTARUNE: 🏁 and 🏳️‍⚧️
 
-New Vegas: 🐕, but it did the thing it does to most would-be men who play that game
+New Vegas: 🐕 but it did the thing it does to most would-be men who play that game
 
 Super Smash Bros Ultimate: 🎮 i play Incineroar :3
 
-Sekiro: 🎮, even though its hard
+Sekiro: 🎮 <sup> even though its hard</sup>
 
 Elden Ring: 🏁 and 🏳️‍⚧️
 
