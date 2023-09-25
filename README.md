@@ -41,7 +41,7 @@ Titanfall 2: 🚩
 
 Team Fortress 2: 🐈‍⬛ i main Demo and Medic
 
-JoJo's Heritage for the Future: 🎮 I play Hol and Soul
+[JoJo's Heritage for the Future](https://www.youtube.com/watch?v=6hIG22y8MV0): 🎮 I play Hol and Soul
 
 Guilty Gear Strive: 💸I wanna get it so baaaad
 
