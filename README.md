@@ -41,11 +41,11 @@ Titanfall 2: 🚩
 
 Team Fortress 2: 🐈‍⬛ i main Demo and Medic
 
-JoJo's Heritage for the Future [(what's that?)](https://www.youtube.com/watch?v=6hIG22y8MV0): 🎮 I play Hol and Soul
+JoJo's Heritage for the Future [(what?)](https://www.youtube.com/watch?v=6hIG22y8MV0): 🎮 I play Hol and Soul
 
 Guilty Gear Strive: 💸I wanna get it so baaaad
 
 Last Train out of Wormtown: 🎮 this is a FUN AS HELL party game that only one person has to pay for
 
-
+Pokemon Showdown: 🎮 I play Gen 9 OU and the OMs that release every month. [here's my teams](https://github.com/goldrush71/showdown-teams)
 
